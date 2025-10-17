@@ -6,3 +6,5 @@ The all of coding were remade by me and refixed html
 Credits Goes To nadako
 
 https://github.com/haxequake
+
+THIS IS STILL GETTING WORKED ON SO PLEASE WAIT, FOR NOW IT'S QUAKE SHAREWARE
