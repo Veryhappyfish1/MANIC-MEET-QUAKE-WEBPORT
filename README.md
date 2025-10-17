@@ -19,3 +19,9 @@ THIS IS STILL GETTING WORKED ON SO PLEASE WAIT, FOR NOW IT'S QUAKE SHAREWARE
 
 
 Made By Cavemangaming
+
+# Please Support the actual game here
+
+https://real-life-productions.itch.io/manic-in-quake-demo
+
+https://real-life-productions.itch.io/manic-unknown-world-episode-2-a
